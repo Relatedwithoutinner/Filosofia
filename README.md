@@ -18,7 +18,7 @@ I answer that, As stated before, truth resides, in its primary aspect, in the in
 algumas frases são da Summa e outras não , mas é possivel que algumas conclusões são aprimoramentos
 se voce diz que algo não é diferente de si voce nega a duplicação que a comparação causa, e a diferença, algo não é meramente igual a si, pois sequer divisão e comparação consigo, e duplicação, mas é preferivel dizer que não é diferente, pra evitar conclusões falsas, e pra finalizar citar as frases anteriores, para evitsr alguem achar que você esta dizendo que algo "é" diferente de si. Esse "é" consiste em verbo .
 Coisas que não existem não tem interior, elas tem relação, os que não existem, e não tem presença, sofrem o efeito de ser conhecido por Deus( e só em relação a Deus é propriamente dito na voz passiva, mas não é passividade pois não tem paixão envolvida)
-sofrer sem presença é proprio de coisas que não existem pois a sua relação fica """sozinha""", é como sumir e deixar o pensamento, alias é sabido que fora da realidade fisica não ha parte de dentro, não há interiorr.
+sofrer sem presença é proprio de coisas que não existem pois a sua relação fica """sozinha""", é como sumir e deixar o pensamento, alias é sabido que fora da realidade fisica não ha parte de dentro, não há interior.
 se existe " x para y " e apagar os dois e deixar o "para" 
 vale trxtar ambos as alegorias, relação sem presentes, e evento ou ação sem relacionados presentes.
 
