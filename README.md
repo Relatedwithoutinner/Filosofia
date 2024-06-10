@@ -31,7 +31,7 @@ sofrer sem presença é proprio de coisas que não existem pois a sua relação 
 se existe " x para y " e apagar os dois e deixar o "para" 
 vale trxtar ambos as alegorias, relação sem presentes, e evento ou ação sem relacionados presentes.
 
-Pois em ultima  instancia o que não tem presença não começa nem uma magnitude( extensãoe tamanho) nem uma presença depois que acaba o todo ou no final de algo, o todo não continua, ele acaba, e o que não tem presença não começa uma presença ou interior no fim do todo, e nem no fim de algo, e ele não pode estar dentro do todo, então não pode ser grande..mas não é pequeno no sentido de acrescentar algo pequeno, mas de espelhar algo pequeno se o todo fosse pequeno, mas como não é ele é melhor dizer que não é pequeno nem grande
+Pois em ultima  instancia o que não tem presença não começa nem uma magnitude( extensãoe tamanho) nem uma presença depois que acaba o todo ou no final de algo, o todo não continua, ele acaba, e o que não tem presença não começa uma presença ou interior no fim do todo, e nem no fim de algo, e ele não pode estar dentro do todo, então não pode ser grande..mas não é pequeno no sentido de acrescentar algo pequeno, mas de espelhar algo pequeno se o todo fosse pequeno, mas como não é ele é melhor dizer que não é pequeno nem grande, é como uma existencia fora de si, mas o nada esse termo existencia é menos proprio e o melhor é conhecido fora de si. Espelhado significa que sua realidade é não exceder o pequeno
 
 Enquanto lugar começa uma presença sem magnitude.
 
@@ -40,4 +40,4 @@ E o nada não inicia uma magnitude nem uma presença nem existencia, pois ele se
 
 
 Nem Deus, nem o nada, tem interior, mas o primeiro existe embora sem presença
-mas nenhum adiciona uma presença menos ainda uma presença com interior, no todo nem dentro nem fora, mas se diferem do ponto pois esse tem presemça
+mas nenhum adiciona uma presença menos ainda uma presença com interior, no todo nem dentro nem fora, mas se diferem do ponto pois esse tem presença
