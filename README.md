@@ -20,3 +20,7 @@ se voce diz que algo não é diferente de si voce nega a duplicação que a comp
 Coisas que não existem não tem interior, elas tem relação, os que não existem, e não tem presença, sofrem o efeito de ser conhecido por Deus( e só em relação a Deus é propriamente dito na voz passiva, mas não é passividade pois não tem paixão envolvida)
 sofrer sem presença é proprio de coisas que não existem pois a sua relação fica """sozinha""", é como sumir e deixar o pensamento, alias é sabido que fora da realidade fisica não ha parte de dentro, não há interiorr.
 se existe " x para y " e apagar os dois e deixar o "para" 
+vale trxtar ambos as alegorias, relação sem presentes, e evento ou ação sem presentes, pois em ultima  instancia o que não tem presença não começa nem magnitude( extensãoe tamanho) nem presença depois do todo ou de algo, e ele não esta dentro desse algo.
+enquanto lugar começa uma presença sem magnitude
+e o nada não inicia uma magnitude nem uma presença nem existencia, pois ele sendo crença é crido, sua existencia é sofrer o efeito de ser crido
+nem Deus, nem o nada, tem interior, mas o primeiro existe embora sem presença
