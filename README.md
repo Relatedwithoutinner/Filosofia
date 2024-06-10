@@ -15,9 +15,13 @@ I answer that, As stated before, truth resides, in its primary aspect, in the in
 "since a name has both a mode of signifying and the thing signified itself, it can always be denied of God either on account of one of these or on account of both; but it cannot be said of God except on account of only of one them. And since the truth and appropriateness of an affirmation requires that all be affirmed, whereas for the appropriateness of a negation it is sufficient if only one of them is lacking, this is why Dionysius says that negations are absolutely true, but affirmations only in some respect [secundum quid]: for only with respect to what is signified, but not with respect to the mode of signifying[23].»"
 "1987. That they are not opposed as (~) contradictories is evident because neither of them applies to non-being, for non-being is neither one nor many"
 
-algumas frases são da Summa e outras não , mas é possivel que algumas conclusões são aprimoramentos
-se voce diz que algo não é diferente de si voce nega a duplicação que a comparação causa, e a diferença, algo não é meramente igual a si, pois sequer divisão e comparação consigo, e duplicação, mas é preferivel dizer que não é diferente, pra evitar conclusões falsas, e pra finalizar citar as frases anteriores, para evitsr alguem achar que você esta dizendo que algo "é" diferente de si. Esse "é" consiste em verbo .
-Coisas que não existem não tem interior, elas tem relação, os que não existem, e não tem presença, sofrem o efeito de ser conhecido por Deus( e só em relação a Deus é propriamente dito na voz passiva, mas não é passividade pois não tem paixão envolvida)
+algumas frases são da Summa e outras não , mas é possivel que algumas conclusões são aprimoramentos.
+
+se você diz que algo não é diferente de si você nega a duplicação que a comparação causa, e a diferença, algo não é meramente igual a si, pois sequer divisão, comparação consigo, e duplicação, existem, mas é preferivel dizer que não é diferente, pra evitar conclusões falsas, e pra finalizar citar as frases anteriores, para evitsr alguem achar que você esta dizendo que algo "é" diferente de si. 
+
+Pra piorar esse "é" consiste em verbo,pode ser usado mas não de modo univoco pras criaturas, e pra Cristo sem se preocupar com univocidade pois a ele isso é proprio.
+Deus existe e conhece mas sem ter presença, e ele não quer ser tocado( a Primeira pessoa da Trindade).
+mas coisas que não existem tambem não tem interior, elas tem relação, os que não existem, e não tem presença, sofrem o efeito de ser conhecido por Deus( e só em relação a Deus ser conhecido é propriamente dito na voz passiva, mas não é passividade pois não tem paixão envolvida, pois as criaturas não são afetadas por ser conhecidas por outras criaturas)
 sofrer sem presença é proprio de coisas que não existem pois a sua relação fica """sozinha""", é como sumir e deixar o pensamento, alias é sabido que fora da realidade fisica não ha parte de dentro, não há interior.
 se existe " x para y " e apagar os dois e deixar o "para" 
 vale trxtar ambos as alegorias, relação sem presentes, e evento ou ação sem relacionados presentes.
