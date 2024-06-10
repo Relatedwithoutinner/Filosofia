@@ -22,7 +22,7 @@ sofrer sem presença é proprio de coisas que não existem pois a sua relação 
 se existe " x para y " e apagar os dois e deixar o "para" 
 vale trxtar ambos as alegorias, relação sem presentes, e evento ou ação sem relacionados presentes.
 
-Pois em ultima  instancia o que não tem presença não começa nem magnitude( extensãoe tamanho) nem presença depois que acaba o todo ou no final de algo, e ele não esta dentro desse algo, para alem, das coisas fisicas não a interior, e o que nãontem presença nãoo é grande por não expandir otodo em seu fim e não estar dentro dele
+Pois em ultima  instancia o que não tem presença não começa nem magnitude( extensãoe tamanho) nem presença depois que acaba o todo ou no final de algo, o todo não continua, ele acaba, e o que não tem presença não começa uma presença ou interior no fim do todo, e nem no fim de algo, e ele não pode estar dentro do todo, então não pode ser grande..
 
 enquanto lugar começa uma presença sem magnitude.
 
