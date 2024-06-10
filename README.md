@@ -29,3 +29,4 @@ enquanto lugar começa uma presença sem magnitude.
 e o nada não inicia uma magnitude nem uma presença nem existencia, pois ele sendo crença é crido, sua existencia é sofrer o efeito de ser crido.
 
 nem Deus, nem o nada, tem interior, mas o primeiro existe embora sem presença
+mas nenhum adiciona uma presença menos ainda uma presença com interior, no todo nem dentro nem fora, mas se diferem do ponto pois esse tem presemça
