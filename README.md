@@ -41,5 +41,8 @@ E o nada não inicia uma magnitude nem uma presença nem existencia, pois ele se
 
 Nem Deus, nem o nada, tem interior, mas o primeiro existe embora sem presença
 mas nenhum adiciona uma presença menos ainda uma presença com interior, no todo nem dentro nem fora, mas se diferem do ponto pois esse tem presença
+
+
 O exterior do ponto ta nele, o exterior de Deus, esta fora dele. 
-Nem Deus, nem o nada tem presença em si, embora o nome dado a Deus de atualidade ainda não sei se é a relação dele e a contemplação dele que é atualidade , etnão mantenho apenas que Deus é atualidade e não é uma ocupação de espaço
+Nem Deus, nem o nada tem presença em si, sendo que como dito oque difere é que Deus entende as coisas e tem bondade( cada uma das pessoas da Trindade é por necessidade bondosa com a outra, mas sem necessidade de paixão), 
+embora o nome dado a Deus de atualidade ainda não sei se é a relação dele e a contemplação dele que é atualidade , então mantenho apenas que Deus é atualidade e não é uma ocupação de espaço
