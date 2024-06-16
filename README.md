@@ -44,5 +44,6 @@ mas nenhum adiciona uma presença menos ainda uma presença com interior, no tod
 
 
 O exterior do ponto ta nele, o exterior de Deus, esta fora dele. 
-Nem Deus, nem o nada tem presença em si, sendo que como dito oque difere é que Deus entende as coisas e tem bondade( cada uma das pessoas da Trindade é por necessidade bondosa com a outra, mas sem necessidade de paixão), 
-embora o nome dado a Deus de atualidade ainda não sei se é a relação dele e a contemplação dele que é atualidade , então mantenho apenas que Deus é atualidade e não é uma ocupação de espaço
+Nem Deus, nem o nada tem presença em si, sendo que como dito oque difere é que Deus entende as coisas e tem bondade( cada uma das pessoas da Trindade é por necessidade bondosa com a outra, mas sem necessidade de paixão), e sua causatividade.
+Embora o nome dado a Deus de atualidade ainda não sei se é a relação dele e a contemplação dele que é atualidade, então mantenho apenas que Deus é atualidade e não é uma ocupação de espaço
+é melhor dizer que adeus não sobra e não ocupa tbm
