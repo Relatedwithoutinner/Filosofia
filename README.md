@@ -41,9 +41,9 @@ E o nada não inicia uma magnitude nem uma presença nem existencia, pois ele se
 
 Nem Deus, nem o nada, tem interior, mas o primeiro existe embora sem presença
 mas nenhum adiciona uma presença menos ainda uma presença com interior, no todo nem dentro nem fora, mas se diferem do ponto pois esse tem presença
+Mas Deus não tem resto presente nem posição /postura, porem se deve nomear a relação e não os papeis ausentes, de contemplação e os nomes negativos, como são atribuições( exceto o nada) , não existem pois não se deve atribuir coisas que nada adicionam: melhor do que chamar de seco é dizer que não tem umidade, então a realidade dessas coisas é ser representado ou sofrer ação de serem conhecidas ou ao menos, representadas .
+
+é diferente de negação em frase, podemos negar todo nome ou classificação as coisas, mas pois elas não são, mas não podemos negar que suas relações somam algo quando bilaterais, e quando unilaterais não tem um para no meio, mas elas estão relativas a algo  .
+No nada e em Deus e nos entes negativos não somam espacialmente, pois seu exterior é fora de si, no "para"
 
 
-O exterior do ponto ta nele, o exterior de Deus, esta fora dele. 
-Nem Deus, nem o nada tem presença em si, sendo que como dito oque difere é que Deus entende as coisas e tem bondade( cada uma das pessoas da Trindade é por necessidade bondosa com a outra, mas sem necessidade de paixão), e sua causatividade.
-Embora o nome dado a Deus de atualidade ainda não sei se é a relação dele e a contemplação dele que é atualidade, então mantenho apenas que Deus é atualidade e não é uma ocupação de espaço
-é melhor dizer que adeus não sobra e não ocupa tbm
