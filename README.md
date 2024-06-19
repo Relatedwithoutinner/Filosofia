@@ -46,4 +46,7 @@ Mas Deus não tem resto presente nem posição /postura, porem se deve nomear a 
 é diferente de negação em frase, podemos negar todo nome ou classificação as coisas, mas pois elas não são, mas não podemos negar que suas relações somam algo quando bilaterais, e quando unilaterais não tem um para no meio, mas elas estão relativas a algo  .
 No nada e em Deus e nos entes negativos não somam espacialmente, pois seu exterior é fora de si, no "para"
 
+Quanto aos entes, não é porque sem Deus ainda não a parecidos com o nada, que haja algo, e que se algo vir a se parecer havera redução numerica.dizer que "algo não parece consigo" é um erro, parece consigo força um status de sujeito e coisa, então ao unves da negacão usando "não é", pode se usar negação usando "não tem'.E mesmo que digamos que as coisas sem Deus "são" tipo "não", e a negação da presença o não negando o não, o nãk negado ainda assim não é algo realmente, pois é apenas relativo a Deus, assim como lugar não tem realidade se não ser acertado pelo volume ou extensão linear, mesmo quando dentro do volume, precisa de linha em contato" frontal", para justificar a divisão no meio.....
+
+
 
