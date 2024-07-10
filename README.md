@@ -57,9 +57,9 @@ Quanto aos entes, não é porque sem Deus ainda assim não existem parecidos com
 
 
 
-É preciso que ambos o nada e Deus não estejam no tempo, e nesse sentido o nada é necessario, é necessario que a diversidade de relações tenha um fim quantitativo, que acabe
+É preciso que ambos o nada e Deus não estejam no tempo, e nesse sentido o nada é necessario, é necessario que a diversidade de relações tenha um fim quantitativo, que acabe. 
 eles não são alvos, então é como se eles fossem possuidores de uma extensão(relação) fora deles mesmos, então, como se fosse ao modo de dono não de contato como lugar( limite alvo), pois eles não tem presença e interior
-então mesmo o nada não sendo um dono, a ideia de dono exclui contato e a ideia de ser alvo, mantendo a ideia que para alem do tempo não tem lugares e espaços e dimensões onde ele esteja, já que ele se origina obrigatoriamente do tempo( sua origem)) e por necessidade pois é preciso no fim( não localmente) da diversidade de relações haver Deus e o Nada( não haver), mas eles não ae identificm, pois Deus não é o nada.
+então mesmo o nada não sendo um dono, a ideia de dono exclui contato e a ideia de ser alvo, mantendo a ideia que para alem do tempo não tem lugares e espaços e dimensões onde ele esteja, já que ele se origina obrigatoriamente do tempo( sua origem)) e por necessidade pois é preciso no fim( não localmente) da diversidade de relações haver Deus e o Nada( não haver, apenas não inteligir e não estar presente), mas eles não se identificm, pois Deus não é o nada.
 então é importante que o que esta "presente" seja o tempo e entendido como se fosse posse( mas na realidade é origem, uma compania que origina ele, porem, como essa palavra da ideia de contato, então é melhor usar o termo posse improvisadamente), por fim é evidente que não ter esforço, movimento, inquietação, duração, etc, tem mais haver com aquilo que não esta presente.
 
 
