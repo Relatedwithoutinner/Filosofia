@@ -1,5 +1,7 @@
  Filosofia
 
+conhecer minimamente é reagir e considerar algo, e amar é recusar o que é prejudicial aos que amamos, por ser prejudicial, com o adicional de que com essa recusa não busca ser correspondido e amado pelo que é protegido por ela em troca.
+
 O conhecido não é qualificado pelo conhecidor, se o conhecedor for criatura, pois conhecer não é bilateral, e boa parte das contextualizações são unilaterais, isso é bem documentado por Aristotle.
 Agora para Deus as coisas são verdadeiras em relação a Deus somente, como Aquinas diz na Summa ao falar de verdade.As coisas não são feitas de verdade.
 
@@ -73,8 +75,10 @@ Por isso sobra, posse, extensão, relação, agora e realidade, são bons termos
 
 Porem nenhuma frase sobre o nada É verdadeira, pois verdade não éa mera remoção da ambiguidade e da mentira, mas sim adicionar algo funcionando   , mas entretanto, o intelecto( não a frase) é verdadeiro ao saber disso, mas o nada não é um fato adicionado, pois "fato" não é remoção da mentira apenas, e dizer que algo não é verdade é diferente de dizer que é mentira, mas não atribuir isso a Santo Tomás, pois ele não chama as frases sohre o nada de algo que não é verdade, mas o nada que não é verdadeiro e verdade nem sequer mentira.
 
-Pois dizer que o nada não É trata ele como sujeito, dizer que não Tem algo não cai nesse erro, ainda assim o nada não é verdade, e nem por isso significa que o nada "não adicionar" seja mentira isto é, não é o mesmo que dizer que ele adiciona algo.        <<
+Pois dizer que o nada não É trata ele como sujeito, dizer que não Tem algo não cai nesse erro, ainda assim o nada não é verdade, e nem por isso significa que o nada "não adicionar" seja mentira isto é, não é o mesmo que dizer que ele adiciona algo.  
+Não é porque você não vai encontrar algo na realidade que isso seja uma verdade, verdadeiro é  o     intecto ao saber disso<<
 
 
-Tudo isso de entender coisas que apenas tem extensão e posse fora de si, sem ter presença, como Deus , se originou no fato de as pessoas que mais amo terem o signo de virgem( que equivale ao galo, apesar desse ser uma mistura de virgem e libra, ou virgem dentro da composição de libra, virgem assumindo aspecto de essencia, o que explicaria a contra antiscia, sendo que os syzygy já existe desde Geminos), mas por fim, uma dessas pessoas é minha Tia, que foi uma das primeiras pessoas que admirei respeitosamente, mas a admiração passou pra outras pessoas(apesar de eu ainda respeitar ela do mesmo jeito), e apesar da minha tia não ser contra contato fisico com as pessoas, isso me inspirou a buscar semelhança entre Deus e virgem, já que virgem não gosta de contato ee de misturar , mas observe que ser conhecido não implica se misturar, como dito no inicio, mas não acredito que o signo bate com as datas, as pessoas que amo e torço pelo sucesso mais foram uma motivação inical...  mas ainda assim me importa que eu não busque bilateralidade e correspondencia, mas apenas torcer naão de modo bilateral.
+Tudo isso de entender coisas que apenas tem extensão e posse fora de si, sem ter presença, como Deus , se originou no fato de as pessoas que mais amo terem o signo de virgem( que equivale ao galo, apesar desse ser uma mistura de virgem e libra, ou virgem dentro da composição de libra, virgem assumindo aspecto de essencia, o que explicaria a contra antiscia, sendo que os syzygy já existe desde Geminos), mas por fim, uma dessas pessoas é minha Tia, que foi uma das primeiras pessoas que admirei respeitosamente, mas a admiração passou pra outras pessoas(apesar de eu ainda respeitar ela do mesmo jeito), e apesar da minha tia não ser contra contato fisico com as pessoas, isso me inspirou a buscar semelhança entre Deus e virgem, já que virgem não gosta de contato ee de misturar , mas observe que ser conhecido não implica se misturar, como dito no inicio, mas não acredito que o signo bate com as datas, as pessoas que amo e torço pelo sucesso mais foram uma motivação inical...  mas ainda assim me importa que eu não busque bilateralidade e correspondencia, mas apenas torcer não de modo bilateral.
+
 
