@@ -77,7 +77,13 @@ Porem nenhuma frase sobre o nada É verdadeira, pois verdade não éa mera remo�
 
 Pois dizer que o nada não É trata ele como sujeito, dizer que não Tem algo não cai nesse erro, ainda assim o nada não é verdade, e nem por isso significa que o nada "não adicionar" seja mentira isto é, não é o mesmo que dizer que ele adiciona algo.  
 Não é porque você não vai encontrar algo na realidade que isso seja uma verdade e nem que isso seja uma mentira e portanto as coisas sejam diferentes, verdadeiro é  o     intecto ao saber disso, mesmo que isso que eu estou dizendo de um feeling de mentra não quer dizer que esta errado.
+
+
 Mudando de assunto denovo, No exemplo do "Para", se pressupoe um medium conector, no exemplo da  posse não
+
+
+Tambem é necessario que virgem nao tem materia em si, e que Deus existe fora de si, não em si, mesmo assim
+E é necessario lembrar que enquanto nós temos pequenas porções de materia contidas no corpo, que são passivas em relação ao volume total que as comporta, Deus não tem nem sequer pequenas porções, como dito anteriormente.
 <<
 
 
