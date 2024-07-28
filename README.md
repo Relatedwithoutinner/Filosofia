@@ -1,6 +1,6 @@
  Filosofia
 
-conhecer minimamente é reagir e considerar algo, e amar é recusar o que é prejudicial aos que amamos, por ser prejudicial, com o adicional de que com essa recusa não busca ser correspondido e amado pelo que é protegido por ela em troca.
+conhecer minimamente é reagir e considerar algo, e a inteligencia pode reagir a imaginação ou a ideias, enquanto      amar é recusar o que é prejudicial aos que amamos, por ser prejudicial, com o adicional de que com essa recusa não busca ser correspondido e amado pelo que é protegido por ela em troca.
 
 O conhecido não é qualificado pelo conhecidor, se o conhecedor for criatura, pois conhecer não é bilateral, e boa parte das contextualizações são unilaterais, isso é bem documentado por Aristotle.
 Agora para Deus as coisas são verdadeiras em relação a Deus somente, como Aquinas diz na Summa ao falar de verdade.As coisas não são feitas de verdade.
@@ -47,6 +47,9 @@ Nem Deus, nem o nada, tem interior, mas o primeiro existe embora sem presença
 mas nenhum adiciona uma presença menos ainda uma presença com interior, no todo nem dentro nem fora, mas se diferem do ponto pois esse tem presença
 Mas Deus não tem resto presente nem posição /postura, porem se deve nomear a relação e não os papeis ausentes, de contemplação e os nomes negativos, como são atribuições( exceto o nada) , não existem pois não se deve atribuir coisas que nada adicionam: melhor do que chamar de seco é dizer que não tem umidade, então a realidade dessas coisas é ser representado ou sofrer ação de serem conhecidas ou ao menos, representadas .
 
+
+A partir de agora serei redundante e falarei de formas distintas do mesmo tema, talvez fique prolixo, mas é proposital.
+
 é diferente de negação em frase, podemos negar todo nome ou classificação as coisas, mas pois elas não são, mas não podemos negar que suas relações somam algo quando bilaterais, e quando unilaterais não tem um para no meio, mas elas estão relativas a algo  .
 No nada e em Deus e nos entes negativos não somam espacialmente, pois seu exterior é fora de si, no "para"
 
@@ -84,6 +87,8 @@ Mudando de assunto denovo, No exemplo do "Para", se pressupoe um medium conector
 
 Tambem é necessario que virgem nao tem materia em si, e que Deus existe fora de si, não em si, mesmo assim
 E é necessario lembrar que enquanto nós temos pequenas porções de materia contidas no corpo, que são passivas em relação ao volume total que as comporta, Deus não tem nem sequer pequenas porções, como dito anteriormente.
+
+por fim o que mais vale ser lembrado é que uma vez que Deus existe fora de si, não em si, ele não é uma barreira, por não ser um lado geometrico como um ponto, e assim apesar de não estar dentro e não ter profundidade, ele não é uma barreira( assim fica menos dificil pra imaginação não confindor com os limites locais), e não tem presença em si, nem existencia, o mesmo vale pra nós antes da criação que existiamos fora de nós, em Cristo
 <<
 
 
