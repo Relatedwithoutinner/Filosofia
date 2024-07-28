@@ -85,10 +85,10 @@ Não é porque você não vai encontrar algo na realidade que isso seja uma verd
 Mudando de assunto denovo, No exemplo do "Para", se pressupoe um medium conector, no exemplo da  posse não
 
 
-Tambem é necessario que virgem nao tem materia em si, e que Deus existe fora de si, não em si, mesmo assim
+Tambem é necessario lembrar que virgem não tem materia em si, e que Deus existe fora de si, não em si, mesmo assim
 E é necessario lembrar que enquanto nós temos pequenas porções de materia contidas no corpo, que são passivas em relação ao volume total que as comporta, Deus não tem nem sequer pequenas porções, como dito anteriormente.
 
-por fim o que mais vale ser lembrado é que uma vez que Deus existe fora de si, não em si, ele não é uma barreira, por não ser um lado geometrico como um ponto, e assim apesar de não estar dentro e não ter profundidade, ele não é uma barreira( assim fica menos dificil pra imaginação não confindor com os limites locais), e não tem presença em si, nem existencia, o mesmo vale pra nós antes da criação que existiamos fora de nós, em Cristo
+por fim o que mais vale ser lembrado é que uma vez que Deus existe fora de si, não em si, ele não é uma barreira, por não ser um lado geometrico como um ponto, e assim apesar de não estar dentro e não ter profundidade, ele não é uma barreira, ainda que tivesse direção não teria lado, mas tbm nem profundidade e tridimensionalidade( assim fica menos dificil pra imaginação não confindor com os limites locais), e não tem presença em si, nem existencia, o mesmo vale pra nós antes da criação que existiamos fora de nós, em Cristo
 <<
 
 
