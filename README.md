@@ -79,7 +79,7 @@ Por isso sobra, posse, extensão( continuação), relação, agora e realidade, 
 >>Pois dizer que o nada não É trata ele como sujeito, dizer que não Tem algo não cai nesse erro, ainda assim o nada não é verdade, e nem por isso significa que o nada "não adicionar" seja mentira isto é, não é o mesmo que dizer que ele adiciona algo.  
 Não é porque você não vai encontrar algo na realidade que isso seja uma verdade e nem que isso seja uma mentira e portanto as coisas sejam diferentes, verdadeiro é  o     intecto ao saber disso, mesmo que isso que eu estou dizendo de um feeling de mentra não quer dizer que esta errado<<
 
->>pois principalmente, todo 'Não' é acompanhado de uma 'afirmação' em si, que o conecta com o que nega ao atribuir ao mesmo tempo afirmatividade, logo é impossivel negar outra coisa se não a afirmação, pois negar parte desse pressuposto, ainda que a afirmação não seja o "é"<<
+>>pois principalmente, todo 'Não' é acompanhado de uma 'afirmação' em si, que o conecta com o que nega ao atribuir ao mesmo tempo afirmatividade, logo é impossivel negar outra coisa se não a afirmação, pois negar parte desse pressuposto, ainda que a afirmação não seja o "é", em resumo, quem se recusa( no sentido de ação) se recusa a algo<<
 
 
 Mudando de assunto denovo, No exemplo do "Para", se pressupoe um medium conector, no exemplo da  posse não
