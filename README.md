@@ -1,4 +1,4 @@
- Filosofia
+Sobre Filosofia
 
 conhecer minimamente é reagir e considerar algo, e a inteligencia pode reagir a imaginação ou a ideias, enquanto      amar é recusar o que é prejudicial aos que amamos, por ser prejudicial, com o adicional de que com essa recusa não busca ser correspondido e amado pelo que é protegido por ela em troca.
 
