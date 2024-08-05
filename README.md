@@ -1,6 +1,6 @@
 Sobre Filosofia em geral
 
-conhecer minimamente é reagir e considerar algo, e a inteligencia pode reagir a imaginação ou a ideias, enquanto      amar é recusar o que é prejudicial aos que amamos, por ser prejudicial, com o adicional de que com essa recusa não busca ser correspondido e amado pelo que é protegido por ela em troca.
+Conhecer minimamente é reagir e considerar algo, e a inteligencia pode reagir a imaginação ou a ideias, enquanto      amar é recusar o que é prejudicial aos que amamos, por ser prejudicial, com o adicional de que com essa recusa não busca ser correspondido e amado pelo que é protegido por ela em troca.
 
 O conhecido não é qualificado pelo conhecidor, se o conhecedor for criatura, pois conhecer não é bilateral, e boa parte das contextualizações são unilaterais, isso é bem documentado por Aristotle.
 Agora para Deus as coisas são verdadeiras em relação a Deus somente, como Aquinas diz na Summa ao falar de verdade.As coisas não são feitas de verdade.
