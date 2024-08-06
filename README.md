@@ -1,12 +1,12 @@
 Sobre Filosofia
 
-toda vez que o que não existir é falso, é porque apesar de não ser uma ser profundidade e presença, serve de  chão da quantidade
-o que se tem, se tem a mais que não ter. Mas isso só é entendido quando o que não existe tem continuação, não só contato, como a parede do copo tem em contato com a água deformada( e essa maneira de não ter forma não é remoção pura, pois tem volume. E segundo Santo Tomás, verdade não é as coisas mas o intelecto a elas adequeado, e de acordo com aristotle no 6 livro de metafisica
+toda vez que existir é falso, é porque apesar de não ser uma ser profundidade e presença, serve de  chão da quantidade, logo
+o que se tem, se tem a mais que não ter. Mas isso só é entendido quando o que não existe tem continuação, não só contato, como a parede do copo tem em contato com a água deformada( e essa maneira de não ter forma não é remoção pura, pois tem volume. E segundo Santo Tomás, verdade não é as coisas mas o intelecto a elas adequeado, e de acordo com aristotle no 6 livro de metafisica, explicarei aqui depois de outros ponto
 
-Conhecer minimamente é reagir e considerar algo, e a inteligencia pode reagir a imaginação ou a ideias, enquanto      amar é recusar o que é prejudicial aos que amamos, por ser prejudicial, com o adicional de que com essa recusa não busca ser correspondido e amado pelo que é protegido por ela em troca. explico depois de outro ponto
+Conhecer minimamente é reagir e considerar algo, e a inteligencia pode reagir a imaginação ou a ideias, enquanto      amar é recusar o que é prejudicial aos que amamos, por ser prejudicial, com o adicional de que com essa recusa não busca ser correspondido e amado pelo que é protegido por ela em troca.
 
 O conhecido não é qualificado pelo conhecidor, se o conhecedor for criatura, pois conhecer não é bilateral, e boa parte das contextualizações são unilaterais, isso é bem documentado por Aristotle.
-Agora para Deus as coisas são verdadeiras em relação a Deus somente, como Aquinas diz na Summa ao falar de verdade.As coisas não são feitas de verdade.
+
 
 Indo para outro assunto, o ponto esta para linha assim como a superficie esta pro volume, mas a superficie pode ser um limite frontal, como a parede do copo em relacão ao volume, e o ponto que recebe a linha, isso aristotle fala no livro 4 de fisica 
 
