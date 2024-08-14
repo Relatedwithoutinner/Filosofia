@@ -3,9 +3,13 @@ Sobre Filosofia
 toda vez que existir é falso, é porque apesar de não ser uma ser profundidade e presença, serve de  chão da quantidade, logo
 o que se tem, se tem a mais que não ter. Mas uma vez que o que não tem presença não é em si imaginavel, isso só é entendido quando o que não existe tem continuação, não só contato, como a parede do copo tem em contato com a água deformada( e essa maneira de não ter forma não é remoção pura, pois tem volume. E segundo Santo Tomás, verdade não é as coisas mas o intelecto a elas adequeado, ou na relação entre as coisas e a mente Divina, pois ele não conhece elas nelas mas em Cristo, e de acordo com aristotle no 6 livro de metafisica, explicarei aqui depois de outros ponto  
 
+
+Mas deixo aqui registrado que existe algo profundamente mal, profundamenth horroroso na ideia de que é obrigatorio afirmar algo sobre o nada, e que dizer que o "nada é ele mesmo", ou que "não haver é não haver"
+é obrigatoriamente certo, pois esse "é" travestido de não contradição, é >Nesse< caso mas não em todo, um parasita, uma identidade falsa e afirmativa de remoção, não é o mesmo que dizer que o nada não é outra coisa. Posso aceitar até que imponham afirmação as criaturas, mas impor isso no nada justifica cisma com quarquer sistema, pois um mundo onde tudo é forçado conduz a toc e doença. Santo Tomás é bom, mas se ele defendesse isso(que não é o caso de tudo que li dele, e mostrarei depois), não apoiaria a ideia, mas continua merecendo respeito enquanto pessoa, ele não é uma logica
+
 Conhecer minimamente é reagir e considerar algo, e a inteligencia pode reagir a imaginação ou a ideias, enquanto      amar é recusar o que é prejudicial aos que amamos, por ser prejudicial, com o adicional de que com essa recusa não busca ser correspondido e amado pelo que é protegido por ela em troca.
 
-O conhecido não é qualificado pelo conhecidor, se o conhecedor for criatura, pois conhecer não é bilateral, e boa parte das contextualizações são unilaterais, isso é bem documentado por Aristotle.
+O conhecido não é qualificado pelo conhecedor, se o conhecedor for criatura, pois conhecer não é bilateral, e boa parte das contextualizações são unilaterais, isso é bem documentado por Aristotle.
 
 
 Indo para outro assunto, o ponto esta para linha assim como a superficie esta pro volume, mas a superficie pode ser um limite frontal, como a parede do copo em relacão ao volume, e o ponto que recebe a linha, isso aristotle fala no livro 4 de fisica 
