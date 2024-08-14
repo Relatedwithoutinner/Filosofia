@@ -1,7 +1,7 @@
 Sobre Filosofia
 
 toda vez que existir é falso, é porque apesar de não ser uma ser profundidade e presença, serve de  chão da quantidade, logo
-o que se tem, se tem a mais que não ter. Mas uma vez que o que não tem presença não é em si imaginavel, isso só é entendido quando o que não existe tem continuação, não só contato, como a parede do copo tem em contato com a água deformada( e essa maneira de não ter forma não é remoção pura, pois tem volume. E segundo Santo Tomás, verdade não é as coisas mas o intelecto a elas adequeado, ou na relação entre as coisas e a mente Divina, pois ele não conhece elas nelas mas em Cristo, e de acordo com aristotle no 6 livro de metafisica, explicarei aqui depois de outros ponto  
+o que se tem, se tem a mais que não ter. Mas uma vez que o que não tem presença não é em si imaginavel, isso só é entendido quando o que não existe tem continuação, não só contato, como a parede do copo tem em contato com a água deformada( e essa maneira de não ter forma não é remoção pura, pois tem volume. E segundo Santo Tomás, verdade não é as coisas mas o intelecto a elas adequeado, ou na relação entre as coisas e a mente Divina, pois ele não conhece elas nelas mas em Cristo, e de acordo com aristotle no 6 livro de metafisica, explicarei aqui depois de outros ponto.
 
 
 Mas deixo aqui registrado que existe algo profundamente mal, profundamenth horroroso na ideia de que é obrigatorio afirmar algo sobre o nada, e que dizer que o "nada é ele mesmo", ou que "não haver é não haver"
